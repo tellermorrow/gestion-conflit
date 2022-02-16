@@ -1,8 +1,8 @@
-Eh, quand on arrive en ville (arrive en ville)
-C'est l'Nevada (c'est l'Nevada)
+Eh, quand on arrive en ville 
+C'est l'Nevada 
 Faut viser plus haut, p'tit frère, cent mille, c'est nada
-Eh ouais, quand on arrive en ville (arrive en ville)
-Qu'on sort des liasses (qu'on sort des liasses)
+Eh ouais, quand on arrive en ville 
+Qu'on sort des liasses 
 La mierda, c'est mort, j'joue la paire d'as
 American Airlines (Airlines), Airlines (Airlines)
 Airlines (oh), j'joue la paire d'as
