@@ -1,5 +1,7 @@
-Eh, quand on arrive en ville 
-C'est l'Nevada 
+Nouvelle Branche de master
+
+Eh, quand on arrive en ville (arrive en ville)
+C'est l'Nevada (c'est l'Nevada)
 Faut viser plus haut, p'tit frère, cent mille, c'est nada
 Eh ouais, quand on arrive en ville 
 Qu'on sort des liasses 
